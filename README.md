@@ -1,0 +1,1 @@
+# NTP._Lab._5.Hafta_Odevleri
